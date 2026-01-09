@@ -1,6 +1,4 @@
-# Favorite-worship-Songs
-
-# Favorite Songs Portfolio 🎵
+# Favorite-worship-Songs 🎵
 
 Welcome to my **Favorite Songs Portfolio**!  
 
